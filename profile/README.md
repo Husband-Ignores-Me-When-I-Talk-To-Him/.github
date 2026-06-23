@@ -8,7 +8,7 @@ If your husband ignores you when you talk to him, do not assume the marriage is 
 
 ---
 
-# Understand What Might Be Behind The Silence
+## Understand What Might Be Behind The Silence
 
 Before reacting, take a moment to consider what may be causing your husband's behavior. Many people jump straight to the worst conclusion. They assume their spouse no longer cares or no longer values the relationship. While that is possible in some situations, it is far from the only explanation.
 
@@ -22,7 +22,7 @@ At the same time, understanding does not mean excusing hurtful behavior. If you 
 
 ---
 
-# Choose The Right Time To Talk
+## Choose The Right Time To Talk
 
 One of the most common mistakes I see is trying to start an important conversation at the wrong moment.
 
@@ -40,7 +40,7 @@ Communication is not only about what you say. It is also about when you say it.
 
 ---
 
-# Express Your Feelings Without Attacking
+## Express Your Feelings Without Attacking
 
 When people feel ignored for a long time, resentment often builds. That resentment can come out in the form of criticism, blame, or accusations.
 
@@ -60,7 +60,7 @@ Clear, honest communication often reveals things that assumptions never could.
 
 ---
 
-# Pay Attention To The Patterns
+## Pay Attention To The Patterns
 
 If your husband ignores you regularly, it helps to look for patterns rather than focusing on isolated incidents.
 
@@ -78,7 +78,7 @@ The more accurately you understand the situation, the more effectively you can r
 
 ---
 
-# Focus On Rebuilding Everyday Connection
+## Focus On Rebuilding Everyday Connection
 
 Many couples think communication only happens during serious conversations. In reality, the small daily interactions often matter even more.
 
@@ -98,7 +98,7 @@ Strong marriages are built through countless small moments of connection.
 
 ---
 
-# Know Your Worth And Set Healthy Expectations
+## Know Your Worth And Set Healthy Expectations
 
 If your husband ignores you occasionally, that is part of being human. Everyone gets distracted. Everyone has bad days.
 
